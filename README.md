@@ -1,2 +1,2 @@
 # ELI
-Coming soooooooooonnnnnnnn 
+Organize my life please (coming sooner) --placeholder
